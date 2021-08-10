@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **aniruddhaghadge786@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/1/my-drive](https://drive.google.com/drive/u/1/my-drive)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1QXU3qvkKe3LujnPwRBWTER-0G8xfKEYK/view?usp=sharing](https://drive.google.com/drive/u/1/my-drive)
 
 - ⚡ Fun fact **Algorithm - A word used by programmers when... they don't want to explain what they did !**
 
